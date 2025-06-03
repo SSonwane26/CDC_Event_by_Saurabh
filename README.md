@@ -14,7 +14,7 @@ The transformation I experienced in just a few hours was surreal.
 
 ☀️ *Let’s rewind to the start...*
 
-The event was scheduled to begin at 10:30 AM. I arrived at 9:55 AM sharp—just like the instructions said. Surprisingly, the venue was quiet at that time. You know that feeling when everything’s still, and your brain starts overthinking?
+The event was scheduled to begin at 10 AM. I arrived at 9:55 AM sharp—just like the instructions said. Surprisingly, the venue was quiet at that time. You know that feeling when everything’s still, and your brain starts overthinking?
 
 🎵 *“Anxiety, I feel it quietly, tryna silence me…”*
 Oops. That song was on loop in my head.
@@ -124,7 +124,7 @@ Here are some of the amazing individuals I had the privilege of meeting:
 
 * **Arjun Rathod** – From Maharashtra, like me! A science educator with a background involving Microsoft products. (Correct me if I’m wrong, Arjun!) Love how education and tech meet in your journey.
 
-* **Basavarajeshwari R Mathapati** – A molecular biologist by profession, now transitioning into the data world. Your story is incredibly inspirational, Basava! I regret not getting to hear more about your journey—looking forward to that someday.
+* **Basavarajeshwari R Mathapati** – A molecular biologist by profession, now transitioning into the data world. Your story is incredibly inspirational, Basavarajeshwari! I regret not getting to hear more about your journey—looking forward to that someday.
 
 * **Mathav K** – Working in the **embedded domain** within the **automotive industry**. We had a great chat about his roles and responsibilities, which I found super relevant given my own automotive interests.
 
